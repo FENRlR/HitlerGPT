@@ -29,14 +29,10 @@ Hitler's table talk
 
 Hans V. Kaltenborn, and Adolf Hitler. “An Interview with Hitler, August 17, 1932.” The Wisconsin Magazine of History 50, no. 4 (1967): 283–90. 
 
-https://www.presidency.ucsb.edu/documents/hitlers-reply-the-presidents-message-the-threat-war
+[Hitler's Reply To the President's Message on the Threat of War.](https://www.presidency.ucsb.edu/documents/hitlers-reply-the-presidents-message-the-threat-war)
 
-http://www.worldfuturefund.org/wffmaster/reading/hitler%20speeches/hitler%20key%20speeches%20index.htm
+[SOME KEY SPEECHES OF ADOLF HITLER](http://www.worldfuturefund.org/wffmaster/reading/hitler%20speeches/hitler%20key%20speeches%20index.htm)
 
-https://ghdi.ghi-dc.org/sub_document.cfm?document_id=3909
+[Hitler’s First Major Statement on Anti-Semitism: Reply to Adolf Gemlich (September 16, 1919)](https://ghdi.ghi-dc.org/sub_document.cfm?document_id=3909)
 
-https://alphahistory.com/holocaust/hitler-jewish-expulsions-1939/
-
-
-
-
+[HITLER RESPONDS TO CRITICISMS OF JEWISH EXPULSIONS (1939)](https://alphahistory.com/holocaust/hitler-jewish-expulsions-1939/)
