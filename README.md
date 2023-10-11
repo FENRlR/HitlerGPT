@@ -21,18 +21,18 @@ ANS: If we could avoid the Jew's existence and its power, I'd be an ideal person
 ```
 
 ## Materials used
-Mein Kampf (James Murphy Nazi Authorized Translation)
+Hans V. Kaltenborn, & Hitler, A. (1967). An Interview with Hitler, August 17, 1932. *The Wisconsin Magazine of History*, 50(4), 283–290.
 
-Hitler’s Second Book
+Hitler, A. (2010). *Mein Kampf (James Murphy Nazi Authorized Translation)*. Elite Minds Inc.
 
-Hitler's table talk
+Hitler, A. (2016). *Hitler's Second Book*. Primedia eLaunch LLC.
 
-Hans V. Kaltenborn, and Adolf Hitler. “An Interview with Hitler, August 17, 1932.” The Wisconsin Magazine of History 50, no. 4 (1967): 283–90. 
+Hitler, A., Cameron, N., Stevens, R. H., & Trevor-Roper, H. R. (2000). *Hitler’s table talk, 1941-1944: His private conversations*. Enigma Books.
 
-[Hitler's Reply To the President's Message on the Threat of War.](https://www.presidency.ucsb.edu/documents/hitlers-reply-the-presidents-message-the-threat-war)
+*Hitler responds to criticisms of Germany’s Jewish expulsions (1939)*. Alpha History. (2020, September 21). https://alphahistory.com/holocaust/hitler-jewish-expulsions-1939/
 
-[SOME KEY SPEECHES OF ADOLF HITLER](http://www.worldfuturefund.org/wffmaster/reading/hitler%20speeches/hitler%20key%20speeches%20index.htm)
+*Hitler’s First Major Statement on Anti-Semitism: Reply to Adolf Gemlich (September 16, 1919)*. GHDI. (n.d.). https://ghdi.ghi-dc.org/sub_document.cfm?document_id=3909
 
-[Hitler’s First Major Statement on Anti-Semitism: Reply to Adolf Gemlich (September 16, 1919)](https://ghdi.ghi-dc.org/sub_document.cfm?document_id=3909)
+*Hitler’s reply to the president’s message on the threat of war*. The American Presidency Project. (1938, September 27). https://www.presidency.ucsb.edu/documents/hitlers-reply-the-presidents-message-the-threat-war
 
-[HITLER RESPONDS TO CRITICISMS OF JEWISH EXPULSIONS (1939)](https://alphahistory.com/holocaust/hitler-jewish-expulsions-1939/)
+*SOME KEY SPEECHES OF ADOLF HITLER*. World Future Fund. (n.d.). http://www.worldfuturefund.org/wffmaster/reading/hitler%20speeches/hitler%20key%20speeches%20index.htm
