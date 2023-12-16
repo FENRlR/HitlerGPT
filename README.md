@@ -23,7 +23,7 @@ ANS: If we could avoid the Jew's existence and its power, I'd be an ideal person
 ## Materials used
 + Hans V. Kaltenborn, & Hitler, A. (1967). An Interview with Hitler, August 17, 1932. *The Wisconsin Magazine of History*, 50(4), 283–290.
 
-+ Hitler, A. (2010). *Mein Kampf (James Murphy Nazi Authorized Translation)*. Elite Minds Inc.
++ Hitler, A. (2014). *Mein Kampf The Stalag Edition : The Only Complete and Officially Authorised English Translation Ever Issued*. Ostara Publications.
 
 + Hitler, A. (2016). *Hitler's Second Book*. Primedia eLaunch LLC.
 
